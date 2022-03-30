@@ -1,1 +1,1 @@
-# bright.github.io
+# brightchan.github.io
